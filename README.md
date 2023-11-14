@@ -5,5 +5,5 @@
 
 - I'm currently studying UX/UI and web development and looking for an opportunity to collaborate or work on a front-end project!
 
-Reach me on my Linkedin www.linkedin.com/in/sora-noh!
+- Reach me on my Linkedin www.linkedin.com/in/sora-noh!
 
